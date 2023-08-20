@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **minhdoan2762002@gmail.com**
 
-- 📄 my experiences [i do it all my self](i do it all my self)
+- 📄 my experiences [i do it all my self]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
